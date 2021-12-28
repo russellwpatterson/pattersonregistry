@@ -1,6 +1,4 @@
-## Welcome to our baby registry list!
-
-We are very excited to welcome our baby boy this upcoming March!
+# Ruben Wayne Patterson
 
 ## Registry links
 
